@@ -2,4 +2,4 @@
 
 Ravi Yalla
 
-Around 70% of industrial waste is dumped to water
+Around 70% of industrial waste is dumped to water!
